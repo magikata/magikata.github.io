@@ -14,3 +14,6 @@ Zusammen mit der Allianz kämpfen sie gegen das Imperium.
     * Rebellne-Allianz
     * Widerstand
     
+
+Zitat:
+> WAGRRRRWWGAHHWWWRRGGAWWWWRR!
