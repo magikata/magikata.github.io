@@ -17,3 +17,5 @@ Zusammen mit der Allianz kämpfen sie gegen das Imperium.
 
 Zitat:
 > WAGRRRRWWGAHHWWWRRGGAWWWWRR!
+
+<img src="https://pngimg.com/uploads/starwars/starwars_PNG14.png" />
